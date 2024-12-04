@@ -1,4 +1,4 @@
-             ![GD0XqC8 (1)](https://github.com/user-attachments/assets/1a73843b-1e6f-4d76-a67f-905b68561a96)
+             ![GD0XqC8](https://github.com/user-attachments/assets/4693c7db-2066-4cec-b222-438469d8fa72)
 
 <!---!
 mulloily/mulloily is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
