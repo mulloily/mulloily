@@ -1,5 +1,4 @@
-        ![Untitled241_20241212113553 (2)](https://github.com/user-attachments/assets/dcc71788-ea16-44a7-9d40-3c4af54fc0c1)
-
+       ![Untitled321_20241228200405 (4)](https://github.com/user-attachments/assets/df229c42-1ec8-4cdc-84f0-2bc02b807f02)
 
 <!---!
 mulloily/mulloily is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
